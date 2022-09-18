@@ -9,7 +9,7 @@ Hi there 👋
 
 📚 I'm a Python and Java Developer
 
-💻 Preferred language: Java ☕
+💻 Preferred language: Java and Python ☕
 
 😄 Pronouns: He/Him
 
