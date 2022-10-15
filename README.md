@@ -17,7 +17,7 @@ Hi there 👋
 
 👥 Socials: GitHub - Discord - Telegram - Instagram
 
-🌍 Living in Italy
+🌍 Living in SX
 
 🗣 Languages: Italian, English & German
 
