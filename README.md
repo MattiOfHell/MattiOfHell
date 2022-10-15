@@ -19,6 +19,6 @@ Hi there 👋
 
 🌍 Living in SX
 
-🗣 Languages: Italian, English & German
+🗣 Languages: Italian, English, German & Dutch
 
 --------------------------------------------
